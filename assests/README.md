@@ -1,0 +1,1 @@
+## Hosted assets of the JMINE website
